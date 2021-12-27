@@ -1,0 +1,56 @@
+# Rest in the openness of mind 
+(5) 
+
+This slogan contains a simple instruction, follow no train of thought or feeling tone, but rest evenly in a state in which the mind itself is clear and free of discursiveness. Rest free of conceptualization, without tension, but with vivid clarity for as long as we can. Let your mind be as it is.
+
+Whether it lasts for half a second or minutes is okay either way. In the beginning, the portion of distraction to resting is more distraction than resting. As your practicing progresses, the ratio will change. 
+
+Simple meditation practice is to sit comfortably and let your attention be on your breathing. Look at the particular aspect of your breath where you notice the breath the strongest. It could be the front of the nose or where air passes the back of your throat or the lips or the chest or the belly. It doesn't matter. Then with each inhalation and exhalation, relax into the feelings, doing nothing but notice, stay open to whatever appears. When captured by thought, just come back to noticing the breath. No need to judge, you've managed to see your thinking and can return to open awareness of breathing.
+
+Resting in the openness of mind is a type of formless meditation that can be done at any time, anyplace, for a moment or minutes. To rest in this openness of mind relax within the quiet sense of transparency and naturalness. Rest in the space between thoughts and sensations, the field of awareness. With practice, grow accustomed to this state, through short moments of recognition repeated many times.
+
+The mind will run off with the attention-grabbing of the conscious modes/modules that make up the mind. Relax. Thoughts, feelings, and sensations are like waves. They are steadily beating the shore. They build up like the crests of waves then recede into the ocean of awareness. Notice that this is always happening.
+
+Why do you have to know and explain everything? You don't — just breath and trust. Things will happen as they do. Notice everything. What you notice is the life you are living. You can only be aware of your own experiences (thoughts, feelings, and sensations) and not someone else's. 
+
+This slogan is asking you to rest in the space of awareness and observe thoughts, feelings, and sensations as they arise, and not get swept up by them, not to follow them and make them into something that they are not.
+
+In Zen, there is a type of mediation where one rests in the formlessness of awareness referred to as 'Not Knowing.' Letting resting in awareness be our focus rather than the modes associated with discursive thought, undisciplined emotions, and bodily sensations. Thought will come and go. Our bodies know what to do; we don't always have to try and identify and interject our opinions. 
+
+Beyond thinking, there is an empty native cognition that notices experiences as they arise. Rest in this 'don't know mind' and do nothing. There is nothing to do. The flow of life is open, unbiased, and expansive. 
+
+Reality is just what is. Reality is beyond thinking. It is the Heart/Mind, Buddha-Nature, Bodhi-Mind, One-Mind, Great Void, Consciousness. Not to be confused with the only matter of the world but yet don't exclude material either. Not existing nor not existing. Observe awareness with awareness. Turn awareness back towards itself. 
+
+Rest in the openness of the essence of mind.
+
+
+----------------------------------------------------------------
+
+
+Always train in the 3 basic elements ...........................[[201903220513]]
+There is only one point of focus ...............................[[201903180624]]
+Cease dwelling on anything .....................................[[201908050518]]
+º Notice Now ...................................................[[202010212026]]
+º That A Moment ................................................[[202010222017]]
+The Mind Is Both Empty And Cognizant ...........................[[202010300734]]
+
+## Alternate Titles
+- Rest in the openness of mind
+- Rest in the nature of the essence
+- Place your mind on the basis-of-all, the actual path
+- Rest in the nature of all, the basis of everything
+- Establish the nature of the path in the sphere of the foundation of all
+- The nature of the path rests in the essence 
+- Keep 'Don't Know Mind'
+- Rest in the essence of mind, the basis of everything
+
+![](media/20160807_085851_001.jpg)
+
+----
+03-04-2019 - 4:48 AM
+›[[201903040448]]
+→ #slogans
+
+
+
+<div style="page-break-after: always;"></div>
